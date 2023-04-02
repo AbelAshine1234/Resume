@@ -14,6 +14,7 @@
 - 📄 Know about my experiences [https://abelashine1234.github.io/AbelAshine1234/](https://abelashine1234.github.io/AbelAshine1234/)
 
 <h3 align="left">Connect with me:</h3>
+  <h2>abelashine100official@gmail.com</h2>
 <p align="left">
 </p>
 
