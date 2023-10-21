@@ -9,7 +9,7 @@
 
 - 📝 I regularly write articles on [https://abelashine1234.github.io/AbelAshine1234/](https://abelashine1234.github.io/AbelAshine1234/)
 
-- 📫 How to reach me **abelashine100official@gmail.com and my phone number is 0978458870**
+- 📫 How to reach me **abelashine100official@gmail.com and my phone number is +251978458870**
 
 - 📄 Know about my experiences [https://abelashine1234.github.io/AbelAshine1234/](https://abelashine1234.github.io/AbelAshine1234/)
 
